@@ -10,4 +10,8 @@ You search for the tech support number.
 
 But, since it was Lent I decided to
 
-Watch the Passion of the Christ instead
+Watch the Passion of the Christ instead.
+
+Once that was over I decided to watch the lesser known
+
+but excellent Netflix series "LillyHammer".
